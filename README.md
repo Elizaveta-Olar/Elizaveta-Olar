@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Elizaveta-Olar
+- 👀 I’m interested in making add-ons for screen reader NVDA. i'm blind. and it makes my live some easier.
+- 🌱 I’m currently learning to do it better, using more and more advanced solutions.
+- 💞️ I’m looking to collaborate on with like-minded people who are passionate about the same thing.
+- 📫 How to reach me: write to email liss.olar@yandex.ru
